@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Bonderosa4
+- 👀 I’m interested in ... gaming, programming 
+- 📫 How to reach me ... you can write me a mail to troebinger.apps@gmail.com
